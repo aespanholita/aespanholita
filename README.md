@@ -1,10 +1,10 @@
 - 👋 Hi, I’m @aespanholita
 - 👀 I’m interested in visconde, cavalheiro, pricipe da inglaterra me nota
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 💞️ I’m looking to collaborate on conquistar seu coraçao vida
+- 📫 How to reach me 666
 - 😄 Pronouns: elu/delu
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: vem descobrir rsrs
 
 <!---
 aespanholita/aespanholita is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
