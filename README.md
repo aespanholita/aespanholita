@@ -1,7 +1,7 @@
 - 👋 Oie, I’m @aespanholita/ programadora rsss
 - 👀 Estou interesada em: Paulinho
 - 🌱 Atualmente estou aprendendo a: me resolver com ele
-- 💞️ Estou procurando colaborar com: o coraçaozinho dele
+- 💞️ Estou procurando colaborar com: ele, só ele afff
 - 📫 Como chegar até mim: ✨ser ele✨
 - 😄 Pronomes: paulosexual
 - ⚡ Fato engraçado: me apeguei nele HAHA
