@@ -1,5 +1,5 @@
 - 👋 Oie, I’m @aespanholita/ programadora rsss
-- 👀 Estou interesada em: Jesus
+- 👀 Estou interesada em: eu não vou colocar seu nome, Paulo Pirotta hahaha
 - 🌱 Atualmente estou aprendendo a: já me resolvi HAHA
 - 💞️ Estou procurando colaborar com: chega de viadagem
 - 📫 Como chegar até mim: parei com viadagem
