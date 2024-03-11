@@ -1,10 +1,10 @@
 - 👋 Oie, I’m @aespanholita/ programadora rsss
-- 👀 Estou interesada em: Paulinho
-- 🌱 Atualmente estou aprendendo a: me resolver com ele
-- 💞️ Estou procurando colaborar com: ele, só ele afff
-- 📫 Como chegar até mim: ✨ser ele✨
-- 😄 Pronomes: paulosexual
-- ⚡ Fato engraçado: me apeguei nele HAHA
+- 👀 Estou interesada em: Jesus
+- 🌱 Atualmente estou aprendendo a: já me resolvi HAHA
+- 💞️ Estou procurando colaborar com: chega de viadagem
+- 📫 Como chegar até mim: parei com viadagem
+- 😄 Pronomes: chega de viadagem
+- ⚡ Fato engraçado: parei com viadagem
 
 <!---
 aespanholita/aespanholita is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
